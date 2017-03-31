@@ -1,0 +1,1 @@
+# PoE-Endgame-filter-STRICT-
